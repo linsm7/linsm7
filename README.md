@@ -1,4 +1,4 @@
-## 🌞Nice to meet you, I'm Matheus Lins
+## Nice to meet you, I'm Matheus Lins
 
 - 📚 Just a student getting to know the world of technology...
  
